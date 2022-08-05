@@ -1,2 +1,1 @@
-# erebor.github.io
-在做了在做了
+只要你喜欢 jojo 我们就是好朋友
